@@ -10,4 +10,4 @@
 ---!>
 
 <p align="center">
-<b> <i>To protect the righteous, to annihilate the wicked, and to reestablish the principles of dharma I appear on this earth, age after age. <i><br> - Bhagavad Gita: Chapter 4, Verse 8 </b> </p>
+<b> <i>To protect the righteous, to annihilate the wicked, and to reestablish the principles of dharma I appear on this earth, age after age. <i><br> - Shrimad Bhagavad Gita: Chapter 4, Verse 8 </b> </p>
